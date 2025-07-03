@@ -56,7 +56,7 @@ My official contact information.
 
 Skype: Xclass80
 
-Discord: G4
+Discord: G4Hack
 
 www.g4hack.com
 www.g4hack.com.tr
